@@ -1,0 +1,1 @@
+# Laboratory-assignment-No.-1-on-analytical-geometry-and-computer-graphics
